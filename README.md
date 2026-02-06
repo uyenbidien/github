@@ -1,2 +1,1 @@
-# Ko-bi-t
-Ko biết
+# hihi
